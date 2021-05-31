@@ -13,4 +13,6 @@ currently its only for v6 (since we are in v6)
 //todo basic description
 //todo format of submission/PR
 
-# GNU license
+# my ass
+
+fuck alex shit, the dumbfuck 2 lmao
